@@ -8,7 +8,7 @@ Meu nome é Ana Clara Bento
 
 ### Você em contato comigo 📫
 
-bento.jesus@escola.pt.gov.br
+bento.jesus@escola.pr.gov.br
 
 @ye_annaclar4x
 
